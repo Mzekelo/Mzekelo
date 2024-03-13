@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mzekelo
+- 👀 I’m interested in learning 
+- 🌱 I’m currently unemployed 
+- 💞️ I’m looking to collaborate on Education 
+- 📫 How to reach me via whatsapp
+- 😄 Pronouns: Floyd 
+- ⚡ Fun fact: Honest Human 
